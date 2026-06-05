@@ -1,1 +1,1 @@
-file:///C:/Users/colleg/Desktop/index%20(2).html
+https://lushkinegor7-ux.github.io//dfdg
